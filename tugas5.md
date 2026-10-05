@@ -67,4 +67,4 @@ JAWAB:
 
 JAWAB:
 
-![Cuplikan layar 2026-10-05 214623](Cuplikan%20layar%202026-10-05%20214623.png)[cite: 3]
+![Cuplikan layar 2026-10-05 214623](Cuplikan%20layar%202026-10-05%20214623.png)
